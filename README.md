@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @irenehk
+- 👋 Hi, I’m @cryptohousewives
 - 👀 I’m interested in crypto, blockchain, web3
 - 🌱 I’m currently learning 
 - 💞️ I’m looking to collaborate on ...
